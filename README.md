@@ -1,0 +1,2 @@
+# CBD-pre-roll-boxes-cannabis-pre-roll-packaging
+Pre rolls are made with different flavors and it is difficult for buyers to make it on their own. Brands are conscious about choosing good quality CBD pre roll boxes and cannabis pre roll packaging as it elevates their brand. Buyers like to purchase quality pre rolls so they can smoke with ease. The dispensaries and other retail stores offer quality readymade pre rolls to their buyers. 
